@@ -1,0 +1,10 @@
+## Week 4 Discussion Post
+* 3 Things I learned:
+	- The first thing I learned can be found on page 163. Cardoza speaks about how the first priority of discipleship must be to break people out of their enslavement of old habits and sins. Being able to free people from their old ways will allow the Holy Spirit to better mold them more into christlikeness.
+	- The second interesting piece of information I found is also on page 163, but a little further down. Cardoza states, "The mind's exposure to truth, by itself, cannot produce holistic personal transformation." I find this statement to be hitting the nail right on the head. How many of us know people who while knowing the truth allow their minds or hearts to pull them into the opposite direction?
+	- On page 172 Cardoza speaks about how a personal testimony can be used to successfully produce evangelistic fruit. I believe this is why there are so many people either in apologetics or discipleship that put such a great emphasis on personal testimony. When a non-believer or even a believer knows a person and knows where they came from seeing how God worked through him to improve not only his life but the lives of the people he interacted with is such a strong proof to God's love, grace, and strength. 
+* 2 Questions:
+	- Would holding small groups in public spaces allow for better evangelism?
+	- In today's church culture it seems that most congregants are more interesting in consuming rather then serving. How can pastors and ministry leaders change that culture without having to resort to guilting the congregation or demanding the congregation volunteer?
+* 1 Application:
+	- Each one of these chapters gave strong information on how to apply each of their focuses, but I feel being from an IT background the introduction of AI into the education system is something that we are all going to have to start learning and putting into practice to suppliment the curriculums. 
